@@ -16,3 +16,15 @@ KAKAODB TEAM
 
 
 https://blog.naver.com/hoodyo2020
+
+
+in not null 중요
+
+https://studyingazae.tistory.com/189
+
+https://haloaround.tistory.com/212
+
+https://www.youtube.com/watch?v=R-Q21IewcRU&list=PLYUFWNUuw0fm89ZIcYHhNRTsB7RJzM1tX&index=4&ab_channel=E-LearningBridge
+https://blog.naver.com/kdj0876/222706652344
+
+해커랭크공부
